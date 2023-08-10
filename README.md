@@ -1,5 +1,5 @@
-# 💫 About Me:
-Oiii! Eu sou a Beatriz Gomes 👩‍💻<br>📴 Hoje sou estudante do 6º período de Informática<br>💬 Pronomes: ela/dela
+# 👩‍💻 About Me:
+Oiii! Eu sou a Beatriz Gomes!! <br>📴 Hoje sou estudante do 6º período de Informática<br>💬 Pronomes: ela/dela
 
 
 ## 🌐 Socials:
