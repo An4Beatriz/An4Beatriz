@@ -1,4 +1,4 @@
-### Oiii! Eu sou a Beatriz Gomes
+### Oiii! Eu sou a Beatriz Gomes 👩‍💻
 
 
 
